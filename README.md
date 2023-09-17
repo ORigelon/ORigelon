@@ -1,4 +1,6 @@
-### Hi there 👋
+### I'm Wendy from here. I'm glad that the snake skid came to my cloud. As congratulations on discovering my cloud. There are Roblox cross scripts in my repository obf. This must be cooler.
+中国人看这:
+我是本地温迪。很高兴skid大蛇能到我的云端。当然，你肯定下了点功夫才到，所以我可以告诉的是，在我云端存储的obf里有Roblox Doors十字架脚本。每个十字架都非常的精致，当然，这是我用来填充的
 
 <!--
 **ORigelon/ORigelon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
